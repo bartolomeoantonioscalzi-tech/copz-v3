@@ -1,1 +1,0 @@
-Birthdays & Namedays at glance
